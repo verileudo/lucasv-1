@@ -1,5 +1,5 @@
 # 💫 About Me:
-Graduated in artificial intelligence, avid reader, quantum computing enthusiast and critical of the use of technology in today's society.
+Critical of the use of technology in today's society.
 
 
 ## 🌐 Socials:
